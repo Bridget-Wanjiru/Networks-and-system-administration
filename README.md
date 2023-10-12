@@ -1,1 +1,1 @@
-This is to submit my Networks and system dministration assignments and work
+This is to submit my Networks and system administration assignments and work
